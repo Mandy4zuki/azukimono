@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning michaelreeves
 - 💞️ I’m looking to collaborate on fucking nothing
 - 📫 How to reach me,just don't pls
+- nightmarenightmarenightmarenightmare
 
 <!---
 azukimono/azukimono is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
