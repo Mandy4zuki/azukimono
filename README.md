@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @azukimono
-- 👀 I’m interested in madamada
+- 👀 I’m interested in boys and girls,both
 - 🌱 I’m currently learning michaelreeves
 - 💞️ I’m looking to collaborate on fucking nothing
-- 📫 How to reach me,just don't pls
+- 📫 How to reach me,one does not reach me
 - nightmarenightmarenightmarenightmare
 
 <!---
