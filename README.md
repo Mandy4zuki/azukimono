@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @azukimono
+- 👋 Hi, I’m @mandy
 - 👀 I’m interested in boys and girls,both
 - 🌱 I’m currently learning michaelreeves
 - 💞️ I’m looking to collaborate on fucking nothing
